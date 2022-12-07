@@ -1,3 +1,3 @@
-NEW TO CODING AND STILL LEARNING AND HUSTLING
+Learning to code in different languages will be uploading soon
 
 
